@@ -1,0 +1,2 @@
+# Ajarajar
+Menawi ngertos
