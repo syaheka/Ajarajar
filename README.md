@@ -1,2 +1,2 @@
-# Ajarajar
-Menawi ngertos
+# project google
+belajar
